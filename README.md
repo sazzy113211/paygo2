@@ -1,0 +1,2 @@
+# paygo2
+A CRYPTO PLATFORM
